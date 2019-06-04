@@ -1,6 +1,5 @@
 # 水世界影院 最新地址发布 
 ## 导 航 永 久 域 名 [www.porvip.com](httpS://www.porvip.com)
-## ⭐️ 👉 地址一 ：HttpS://www.pw255.com
 ## ⭐️ 👉 地址一 ：[xxxooo666.pw255.com](httpS://xxxooo666.pw255.com)
 ## ⭐️ 👉 地址二 ：[xxxooo888.pw255.com](httpS://xxxooo888.pw255.com)
 ## ⭐️ 👉 地址三 ：[xxxooo999.pw255.com](httpS://xxxooo999.pw255.com)
